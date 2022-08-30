@@ -1,2 +1,2 @@
-# Mary Souza
+# Mary Sousa
 website pessoal
